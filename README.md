@@ -5,9 +5,10 @@ Haii!
 
 My name is Connor, also known as Enuriku.
 
-17 / Midnight
+18 / Midnight
 
-smile and be happy :)
+Memories are timeless~
+smile and be happy, no matter what :)
 
 Discord : Enuriku#4406
 
